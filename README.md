@@ -1,0 +1,1 @@
+# BD-71-POWER-FILE
